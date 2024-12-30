@@ -1,2 +1,1 @@
 # HeritageX
-# HeritageX
